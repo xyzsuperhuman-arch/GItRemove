@@ -1,1 +1,1 @@
-hi my name is aditya my teammates are akash chomu and kushal dick 
+hi my name is aditya my teammates are akash chomu and kushal d
